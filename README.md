@@ -1,0 +1,1 @@
+# tal-uma-l-mpada-incandescente
